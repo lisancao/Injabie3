@@ -2,4 +2,5 @@
 
 - A computer engineer from Simon Fraser University.
 - Anime figurine and art collector.
+- Very cool guy
 - I write about random stuff on my [blog](https://blog.injabie3.moe).
